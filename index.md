@@ -2,6 +2,7 @@
 
 <iframe height="1200" width="100%" src="static/poster-20220218-color.pdf"></iframe>
 
+Download the pdf of the poster [here](https://acroforall.info/poster-color.pdf) to share in your movement communities!
 
 ## Additional Resources
 
