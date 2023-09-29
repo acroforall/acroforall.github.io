@@ -13,7 +13,7 @@ Download the pdf of the poster [here](https://acroforall.info/poster-color.pdf) 
 [The Urgency of Intersectionality](https://www.ted.com/talks/kimberle_crenshaw_the_urgency_of_intersectionality?language=en) (Kimberlé Crenshaw)
 
 ### Implicit Bias
-[Peanut Butter, Jelly, Racism](https://www.pbs.org/video/pov-implicit-bias-peanut-butter-jelly-and-racism/") (PBS)
+[Peanut Butter, Jelly, Racism](https://www.pbs.org/video/pov-implicit-bias-peanut-butter-jelly-and-racism/) (PBS)
 
 [The Coronavirus Was an Emergency Until Trump Found Out Who Was Dying](https://www.theatlantic.com/ideas/archive/2020/05/americas-racial-contract-showing/611389/) (Adam Serwer)
 
