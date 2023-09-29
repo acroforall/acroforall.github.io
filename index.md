@@ -8,7 +8,7 @@ Download the pdf of the poster [here](https://acroforall.info/poster-color.pdf) 
 
 
 ### Overview
-[Origin of Race in the USA](https://www.youtube.com/watch?v=CVxAlmAPHec") (PBS)
+[Origin of Race in the USA](https://www.youtube.com/watch?v=CVxAlmAPHec) (PBS)
 
 [The Urgency of Intersectionality](https://www.ted.com/talks/kimberle_crenshaw_the_urgency_of_intersectionality?language=en) (Kimberlé Crenshaw)
 
